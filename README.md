@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I am Mohammad Obaidur Rahman. But you will find me everywhere with handle name Safty Obaid.I am currently a Senior Year CS Undergraduate Student at American Internartional University-Bangladesh. Besides tech I'm also fairly invested in travelling,studying history,politics and literature.
+I am Mohammad Obaidur Rahman. But you will find me everywhere with handle name Safty Obaid.I am currently a Senior Year CS Undergraduate Student at American Internartional University-Bangladesh. Besides tech I'm also fairly invested in studying history,politics & literature,cycling and travelling
 
 ---
 
